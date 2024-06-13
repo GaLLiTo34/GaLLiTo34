@@ -15,4 +15,5 @@
 </ul>
 
 ## YO ##
-<img src ="https://images.app.goo.gl/vjZuUUiPLjwGgV926"/>
+![image](https://github.com/GaLLiTo34/GaLLiTo34/assets/170998983/ed712985-ba9c-4198-8710-a27a9f890c8f)
+
